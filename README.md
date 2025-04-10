@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @roy7rohit
+- 👋 Hi, I’m Rohit Singh
 - 👀 I’m interested in - software enginnering
 - 📫 How to reach me ...
 - rohitsingh070104@gmail.com
