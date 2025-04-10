@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @roy7rohit
-- 👀 I’m interested in - software development enginnering
+- 👀 I’m interested in - software enginnering
 - 📫 How to reach me ...
 - rohitsingh070104@gmail.com
 - 7982203411
